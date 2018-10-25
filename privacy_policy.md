@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-Potestas IT Services Pvt Ltd built the Vishwa Bharathi High School,Kohir app as a Free app. This SERVICE is provided by Potestas IT Services Pvt Ltd at no cost and is intended for use as is.
+Potestas IT Services Pvt Ltd built the School App as a Free app. This SERVICE is provided by Potestas IT Services Pvt Ltd at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
